@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking to collaborate on Data science projects, SQL database design, and analytics-driven business solutions.
   
-- 📫 How to reach me Feel free to connect with me via [ravindhar.skv@gmail.com].
+- 📫 How to reach me Feel free to connect with me via [ravindhar.v7@gmail.com].
 
 - 😄 Pronouns: He/Him
   
